@@ -1,4 +1,5 @@
 KATA PENGANTAR
+
 Saya mematikan Quotron saya di Fidelity Magellan Fund pada tanggal 31 Mei 1990. Tepat 13 tahun sejak saya menerima pekerjaan itu. Jimmy Carter adalah presiden saat itu, dan dia mengakui bahwa dia memiliki nafsu dalam hatinya. Saya juga memiliki nafsu dalam hati saya—nafsu untuk saham. Pada akhirnya, saya kira saya telah membeli lebih dari 15.000 saham untuk investor di Magellan—dan lebih dari sekali. Tidak heran saya mendapat reputasi sebagai orang yang tidak pernah menemukan saham yang tidak saya sukai. Kepergian saya tiba-tiba, tetapi itu bukan sesuatu yang saya impikan dalam semalam. Tugas untuk melacak begitu banyak perusahaan mulai membebani saya pada pertengahan dekade, karena Dow mencapai angka 2000 dan saya mencapai angka 43. Meskipun saya menikmati mengelola portofolio sebesar PNB Ekuador, saya rindu berada di rumah untuk melihat anak-anak tumbuh dewasa. Mereka berubah dengan cepat. Mereka hampir harus memperkenalkan diri kepada saya
 setiap akhir pekan. Saya menghabiskan lebih banyak waktu dengan Fannie Mae, Freddie Mac, dan
 Sallie Mae daripada yang saya habiskan bersama mereka.

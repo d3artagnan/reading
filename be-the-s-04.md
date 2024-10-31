@@ -74,10 +74,6 @@ Tanpa Home Depot, kesuksesan Magellan di tahun 1979 tetap terulang, bahkan lebih
 
 Dalam meninjau fase awal kepemimpinan saya, saya terkejut dengan tingkat turnover di dana ini: 343 persen pada tahun pertama, ketika portofolio berisi 41 saham, dan 300 persen selama tiga tahun berikutnya. Dimulai pada 2 Agustus 1977, ketika saya menjual 30 persen kepemilikan, saya menjaga laju pembelian dan penjualan yang cepat karena saham perusahaan minyak, perusahaan asuransi, dan konsumen datang dan pergi dari bulan ke bulan.
 
-Berikut adalah terjemahan dari teks yang Anda berikan:
-
----
-
 Pada bulan September 1977, saya membeli beberapa saham siklikal, dan pada bulan November saya mulai menjualnya. Fannie Mae dan Hanes, yang keduanya ditambahkan ke dana itu pada musim gugur, telah hilang pada musim semi. Posisi terbesar saya berpindah dari Congoleum ke Signal Companies, lalu ke Mission Insurance, diikuti oleh Todd Shipyards, dan kemudian restoran steak Ponderosa. Pier 1 muncul dan menghilang, begitu juga dengan sebuah perusahaan dengan nama menarik Four-Phase.
 
 Sepertinya saya bolak-balik dengan Four-Phase setiap siklus bulan. Akhirnya, perusahaan itu diakuisisi oleh Motorola (yang sangat disesali Motorola kemudian), jadi saya harus berhenti memperdagangkannya bolak-balik. Saya samar-samar ingat bahwa itu ada hubungannya dengan terminal komputer, tetapi saya tidak bisa menjelaskan hal itu pada waktu itu maupun sekarang. Untungnya, saya tidak pernah menginvestasikan banyak uang dalam hal-hal yang tidak saya pahami, yang mencakup sebagian besar perusahaan teknologi di sepanjang Route 128 di daerah Boston.
